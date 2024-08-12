@@ -1,0 +1,2 @@
+- i make shit for fun
+- .lowpsi on discord
